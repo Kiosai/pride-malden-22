@@ -25,3 +25,6 @@ We are currently in need of:
 - People to talk about what Pride means to them and why it's important
 - Trained traffic marshals
 - Volunteers to help spread the word
+
+### Accessibility
+If you have access needs, we will do our best to accommodate - email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) and we will be in touch! More to come soon on accessibility means that will be provided during the event.
