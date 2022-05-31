@@ -18,6 +18,9 @@ We're excited to bring you a variety of activies this year. You will be able to:
 - Sign up for / watch a dog show set up by Paws & Purrfection
 - Reflect at an Interfaith service to wrap up the day
 
+### Socials
+RSVP on Facebook: https://fb.me/e/2F4RC9XFN
+
 ### Get involved!
 
 We could always use more volunteers. Email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) if you'd like to get involved!
