@@ -13,4 +13,5 @@ We're looking for folx for the following roles/activities:
 - ON-SITE ACCESS COORDINATOR: Making sure folks have their accessibility needs met, possibly some creative problem-solving. Commitment involves some pre-event emails and day-of interruptibility throughout the event, 10AM to 5PM. Could be split across a few people working closely together taking shifts.
 - FASHION SHOW EMCEE: We'd love to do a little "fashion show," but we'd need someone to emcee it! Commitment would be something like 15-30 minutes at 3PM day of.
 - SPEAKERS: We're still looking for folks to speak! We have a few, but would love love love it if we could get some more folks who are representative of Malden's very diverse LGBTQIA+ community. Speaker program begins at 1PM. This year's theme is CELEBRATION, so we're looking for folks to talk about what Pride means to you, why it's important, and how you celebrate.  
+  
 If you'd like to volunteer for any of the above roles, comment here or send us an email at pridemalden@gmail.com! And thank you for all you bring to the community, whether by volunteering, donating, or just plain being yourself.
