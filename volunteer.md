@@ -1,5 +1,5 @@
 ## Contact Us!
-Email [pridemalden@gmail.com[(mailto:pridemalden@gmail.com) to get involved!
+Email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) to get involved!
 
 ## Opportunities:
 We're looking for folx for the following roles/activities:
