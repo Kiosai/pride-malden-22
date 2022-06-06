@@ -1,3 +1,5 @@
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [VOLUNTEER](https://kiosai.github.io/pride-malden-22/volunteer.html) | [DONATE](https://www.gofundme.com/manage/maldens-third-annual-pride-festival) | [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
+
 ## Malden Pride 2022
 
 Malden Pride is a volunteer-run event that celebrates queerness, grounds itself in the historical meaning of pride, and brings the Malden community closer together.
@@ -31,3 +33,5 @@ Check out volunteer opportunities here: [https://kiosai.github.io/pride-malden-2
 
 ### Accessibility
 If you have access needs, we will do our best to accommodate - email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) and we will be in touch! More to come soon on accessibility means that will be provided during the event.
+
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [VOLUNTEER](https://kiosai.github.io/pride-malden-22/volunteer.html) | [DONATE](https://www.gofundme.com/manage/maldens-third-annual-pride-festival) | [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
