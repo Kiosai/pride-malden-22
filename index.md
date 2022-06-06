@@ -27,10 +27,7 @@ RSVP on Facebook: [https://fb.me/e/2F4RC9XFN](https://fb.me/e/2F4RC9XFN)
 ### Get involved!
 
 We could always use more volunteers. Email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) if you'd like to get involved!
-We are currently in need of:
-- People to talk about what Pride means to them and why it's important
-- Trained traffic marshals
-- Volunteers to help spread the word
+Check out volunteer opportunities here: https://kiosai.github.io/pride-malden-22/volunteer.html.
 
 ### Accessibility
 If you have access needs, we will do our best to accommodate - email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) and we will be in touch! More to come soon on accessibility means that will be provided during the event.
