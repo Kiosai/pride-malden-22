@@ -7,6 +7,9 @@ This year is all about **CELEBRATION**. It's been a while since we've been toget
 
 Saturday June 18th 2022, 11AM to 5PM, Coytemore Lea Park in Malden, RAIN OR SHINE.
 
+### Donate
+We are trying to raise $2,000 to cover a stipend for our guest speakers, our DJ, and food for the event. Any additional funds raised or not spent will go towards our budget for next year’s Malden Pride celebration! You can donate here: [https://gofund.me/36b5d145](https://gofund.me/36b5d145). All support is greatly appreciated and helps us make the event bigger and better.
+
 ### Activities
 We're excited to bring you a variety of activies this year. You will be able to:
 - Peruse tables of local organizations and gather some resources
