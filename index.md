@@ -22,7 +22,7 @@ We're excited to bring you a variety of activies this year. You will be able to:
 - Reflect at an Interfaith service to wrap up the day
 
 ### Socials
-RSVP on Facebook: https://fb.me/e/2F4RC9XFN
+RSVP on Facebook: [https://fb.me/e/2F4RC9XFN](https://fb.me/e/2F4RC9XFN)
 
 ### Get involved!
 
