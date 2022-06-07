@@ -1,0 +1,12 @@
+Come visit the following local orgs:
+* [AIDS Walk Boston](https://walk.aac.org/)
+* [Bike to the Sea](https://biketothesea.org/)
+* [CLVU (City Life/Vida Urbana)](https://www.clvu.org/)
+* [MaldenCORE (Malden Community Organizing for Racial Equity)](https://www.facebook.com/MaldenCORE/)
+* [MTPC (Massachusetts Transgender Political Coalition)](https://www.masstpc.org/)
+* [Mystic Valley Progressives](https://www.facebook.com/MysticValleyProg/)
+* [Mystic Valley Salon](https://mysticvalleysalon.com/)
+* [NAGLY (North Shore Alliance for GLBTQ+ Youth)](https://www.nagly.org/)
+* [Our Revolution Malden](https://www.facebook.com/groups/OurRevMalden/)
+* [Pride @ Work](https://www.prideatwork.org/)
+* [UMA (Urban Media Arts)](https://urbanmediaarts.org/)
