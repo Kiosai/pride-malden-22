@@ -14,13 +14,13 @@ We are trying to raise $2,000 to cover a stipend for our guest speakers, our DJ,
 
 ### Activities
 We're excited to bring you a variety of activies this year. You will be able to:
-- Peruse tables of local organizations and gather some resources
-- Stroll along a storywalk provided by the Malden Library
+- Peruse tables of [local organizations](https://kiosai.github.io/pride-malden-22/local-orgs.html) and gather some resources
+- Stroll along a storywalk provided by the [Malden Public Library](https://maldenpubliclibrary.org/)
 - Enjoy crafts with your kids
 - Dance to affirming music
 - Eat lunch provided by the City of Malden
 - Learn from a lineup of local queer speakers
-- Sign up for / watch a dog show set up by Paws & Purrfection
+- Sign up for / watch a dog show set up by [Paws & Purrfection](https://www.pawsnpurrfectionco.com/)
 - Reflect at an Interfaith service to wrap up the day
 
 ### Socials
