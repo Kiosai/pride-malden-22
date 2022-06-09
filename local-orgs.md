@@ -9,4 +9,4 @@ Come visit the following local orgs:
 * [NAGLY (North Shore Alliance for GLBTQ+ Youth)](https://www.nagly.org/)
 * [Our Revolution Malden](https://www.facebook.com/groups/OurRevMalden/)
 * [Pride @ Work](https://www.prideatwork.org/)
-* [UMA (Urban Media Arts)](https://urbanmediaarts.org/)
+* [Sowing Opportunities](http://www.sowingops.org/en/home/)
