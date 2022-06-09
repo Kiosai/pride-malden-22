@@ -34,4 +34,10 @@ Check out volunteer opportunities here: [https://kiosai.github.io/pride-malden-2
 ### Accessibility
 If you have access needs, we will do our best to accommodate - email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) and we will be in touch! More to come soon on accessibility means that will be provided during the event.
 
+## Sponsors
+Thank you to our sponsors!  
+[Gorton Law LLC](https://gorton.law/)  
+[Dairy Delight](http://mooolicious.com/)  
+For a full list of sponsors, see our [GoFundMe](https://www.gofundme.com/f/maldens-third-annual-pride-festival).
+
 [AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [VOLUNTEER](https://kiosai.github.io/pride-malden-22/volunteer.html) | [DONATE](https://www.gofundme.com/manage/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) | [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
