@@ -21,7 +21,7 @@ The speaking program and interfaith service will be livestreamed (link to come).
 ### COVID POLICY
 As Coytemore Lea is a public park, we cannot enforce any covid precautions. However, we have several recommendations.
 We ask that you keep masked whenever possible. Extra masks, including for kids, will be availalbe at the med tent.
-Before removing your mask, make sure you have the consent of everyone near you - defined as roughly a six foot radius.
+Before removing your mask, please do your best to ensure you have the consent of everyone near you - defined as roughly a six foot radius.
 
 ### FOOD
 A limited amount of food will be available on a first-come first-serve basis. A limited number of vegan meals will be provided by our caterer. Please be respectful of others and only take the vegan meals if you need them.
