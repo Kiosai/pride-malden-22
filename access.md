@@ -16,7 +16,7 @@ Coytemore Lea Park has a paved path throughout the entire park, with accessible 
 Coytemore Lea Park is near to the Malden Center MBTA Station. (Bus info forthcoming.)
 
 ### VIRTUAL ACCESS
-The speaking program and interfaith service will be livestreamed (link to come). Between these events the livestream will be closed.
+The speaking program and interfaith service will be livestreamed (link to come). Between these events the livestream will be closed. We do not have live captioning availalbe but will enable autocaptioning.
 
 ### COVID POLICY
 As Coytemore Lea is a public park, we cannot enforce any covid precautions. However, we have several recommendations.
