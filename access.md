@@ -40,3 +40,6 @@ While fragrances are a great way to affirm identity and self-sooth, we ask that 
 ### ANIMALS
 Service animals are allowed by law. If you see any animals wearing service vests or paraphernalia, do not interact with them - let them do their job!
 Dogs will be present throughout this event; please medicate accordingly if you have allergies.
+
+### WEATHER
+Malden Pride 2022 is a rain or shine event. There will be some shade tents throughout the park.
