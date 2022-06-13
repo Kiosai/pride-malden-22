@@ -1,4 +1,4 @@
-[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [VOLUNTEER](https://kiosai.github.io/pride-malden-22/volunteer.html) | [DONATE](https://www.gofundme.com/manage/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [VOLUNTEER](https://kiosai.github.io/pride-malden-22/volunteer.html) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
 
 ## Malden Pride 2022
 
