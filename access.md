@@ -1,3 +1,5 @@
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [ACCESSIBILITY](https://kiosai.github.io/pride-malden-22/access.html) | [VOLUNTEER](https://forms.gle/Fyfsv1FuX4PmHAzs7) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
+
 ## ACCESSIBILITY
 Malden Pride strives to be as inclusive and accessible as possible. If you have any access needs that we are not currently meeting, please email pridemalden@gmail.com and we will do our best to work with you. This is a fully volunteer-run event and competing access needs are relatively common so we cannot promise to make the event accessible for everyone, but we will do as much as we can.
 
@@ -45,3 +47,5 @@ Dogs will be present throughout this event; please medicate accordingly if you h
 
 ### WEATHER
 Malden Pride 2022 is a rain or shine event. There will be some shade tents throughout the park.
+
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [ACCESSIBILITY](https://kiosai.github.io/pride-malden-22/access.html) | [VOLUNTEER](https://forms.gle/Fyfsv1FuX4PmHAzs7) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
