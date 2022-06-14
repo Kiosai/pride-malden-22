@@ -30,7 +30,7 @@ In the interest of economic accessibility, a limited amount of food will be avai
 A water truck will be present throughout the event. Bendable plastic straws will be availalbe.
 
 ### BATHROOMS
-There will be two porta-potties. One is located on the Clifton St side of the park. The other is TBD.
+There will be two accessible porta-potties. One is located on the Clifton St side of the park. The other is TBD.
 
 ### SENSORY
 Earplugs will be available at the med tent.
