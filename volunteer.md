@@ -1,3 +1,5 @@
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [ACCESSIBILITY](https://kiosai.github.io/pride-malden-22/access.html) | [VOLUNTEER](https://forms.gle/Fyfsv1FuX4PmHAzs7) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
+
 ## Contact Us!
 Sign up to volunteer at [https://forms.gle/Fyfsv1FuX4PmHAzs7](https://forms.gle/Fyfsv1FuX4PmHAzs7), or email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) to get involved!
 
@@ -15,3 +17,5 @@ We're looking for folx for the following roles/activities:
 - FASHION SHOW EMCEE: We'd love to do a little "fashion show," but we'd need someone to emcee it! Commitment would be something like 15-30 minutes at 3PM day of.
   
 If you'd like to volunteer for any of the above roles, comment here or send us an email at pridemalden@gmail.com! And thank you for all you bring to the community, whether by volunteering, donating, or just plain being yourself.
+
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [ACCESSIBILITY](https://kiosai.github.io/pride-malden-22/access.html) | [VOLUNTEER](https://forms.gle/Fyfsv1FuX4PmHAzs7) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
