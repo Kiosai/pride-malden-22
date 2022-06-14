@@ -38,7 +38,7 @@ There will be two accessible porta-potties. One is located on the Clifton St sid
 Earplugs will be available at the med tent.
 
 ### FRAGRANCES AND SMOKING
-While fragrances are a great way to affirm identity and self-sooth, we ask that you consider not wearing fragrances for the event, as they can trigger allergies in others.
+While fragrances are a great way to affirm identity and self-soothe, we ask that you consider not wearing fragrances for the event, as they can trigger allergies in others.
 For the same reason, we ask that you not smoke or vape in crowded areas.
 
 ### ANIMALS
