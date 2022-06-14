@@ -26,10 +26,10 @@ If you are experiencing covid symptoms, have tested positive for covid, or have 
 In the park, we ask that you keep masked whenever possible. Extra masks, including for kids, will be availalbe at the med tent.
 Before removing your mask, please do your best to ensure you have the consent of everyone near you - defined as roughly a six foot radius.
 
-### FOOD
+### FOOD AND WATER
 In the interest of economic accessibility, a limited amount of food will be available at no charge. Food will be served on a first-come first-serve basis. A limited number of vegan meals will be provided by our caterer. Please be respectful of others and only take the vegan meals if you need them. Please let a volunteer know during the event if you need a gluten-free or kosher meal, as we will have a few set aside.
 
-A water truck will be present throughout the event. Bendable plastic straws will be availalbe.
+A water truck will be present throughout the event. You are enouraged to bring your own refillable water bottle. Some cups and bendable plastic straws will be availalbe.
 
 ### BATHROOMS
 There will be two accessible porta-potties. One is located on the Clifton St side of the park. The other is TBD.
