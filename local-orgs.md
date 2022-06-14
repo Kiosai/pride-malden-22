@@ -1,3 +1,5 @@
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [ACCESSIBILITY](https://kiosai.github.io/pride-malden-22/access.html) | [VOLUNTEER](https://forms.gle/Fyfsv1FuX4PmHAzs7) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
+
 Come visit the following local orgs:
 * [AIDS Walk Boston](https://walk.aac.org/)
 * [Bike to the Sea](https://biketothesea.org/)
@@ -13,3 +15,5 @@ Come visit the following local orgs:
 * [Pride @ Work](https://www.prideatwork.org/)
 * [Boston Roller Derby](https://bostonrollerderby.com/)
 * [Sowing Opportunities](http://www.sowingops.org/en/home/)
+
+[AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [ACCESSIBILITY](https://kiosai.github.io/pride-malden-22/access.html) | [VOLUNTEER](https://forms.gle/Fyfsv1FuX4PmHAzs7) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
