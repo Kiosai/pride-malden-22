@@ -1,7 +1,7 @@
 [AGENDA](https://kiosai.github.io/pride-malden-22/agenda.html) | [ACCESSIBILITY](https://kiosai.github.io/pride-malden-22/access.html) | [VOLUNTEER](https://forms.gle/Fyfsv1FuX4PmHAzs7) | [DONATE](https://www.gofundme.com/maldens-third-annual-pride-festival) | [LOCAL ORGS](https://kiosai.github.io/pride-malden-22/local-orgs.html) |  [FACEBOOK](https://fb.me/e/2F4RC9XFN) | [CONTACT](mailto:pridemalden@gmail.com)
 
 ## ACCESSIBILITY
-Malden Pride strives to be as inclusive and accessible as possible. If you have any access needs that we are not currently meeting, please email pridemalden@gmail.com and we will do our best to work with you. This is a fully volunteer-run event and competing access needs are relatively common so we cannot promise to make the event accessible for everyone, but we will do as much as we can.
+Malden Pride strives to be as inclusive and accessible as possible. If you have any access needs that we are not currently meeting, please email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) and we will do our best to work with you. This is a fully volunteer-run event and competing access needs are relatively common so we cannot promise to make the event accessible for everyone, but we will do as much as we can.
 
 ### LANGUAGE
 ASL interpreters are booked from 12:30PM to 4:30PM. They will be present for the speaking program at 1PM and the interfaith service at 4PM, as well otherwise avaialble between those times when they are not actively interpreting a main event.
