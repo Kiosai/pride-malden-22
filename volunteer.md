@@ -1,5 +1,5 @@
 ## Contact Us!
-Email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) to get involved!
+Sign up to volunteer at [https://forms.gle/Fyfsv1FuX4PmHAzs7](https://forms.gle/Fyfsv1FuX4PmHAzs7), or email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) to get involved!
 
 ## Opportunities:
 We're looking for folx for the following roles/activities:
