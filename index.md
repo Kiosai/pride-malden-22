@@ -32,7 +32,7 @@ We could always use more volunteers. Email [pridemalden@gmail.com](mailto:pridem
 Check out volunteer opportunities here: [https://kiosai.github.io/pride-malden-22/volunteer.html](https://kiosai.github.io/pride-malden-22/volunteer.html) and sign up here: [https://forms.gle/Fyfsv1FuX4PmHAzs7](https://forms.gle/Fyfsv1FuX4PmHAzs7).
 
 ### Accessibility
-If you have access needs, we will do our best to accommodate - email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) and we will be in touch! More to come soon on accessibility means that will be provided during the event.
+Check out our [accessibility page](https://kiosai.github.io/pride-malden-22/access.html). If you have access needs that are not being met, we will do our best to accommodate - email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) and we will be in touch!
 
 ## Sponsors
 Thank you to our sponsors!  
