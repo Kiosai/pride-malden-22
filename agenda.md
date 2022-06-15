@@ -18,7 +18,7 @@ We recognize the pandemic is not over, and as such, encourage everyone to wear m
 1PM: Speaker program  
 . State Representative Steven Ultrino  
 . Malden City Councilors Colón Hayes, Linehan, McDonald, O'Malley, Simonelli  
-. Isadel and Erga, MaldenCORE  
+. Isadel Eddy and Erga Pierrette, MaldenCORE  
 . Bybiose Larochelle, Diversity Equity and Inclusion officer in the office of Mayor Christenson  
 . Fern Remedi-Brown, Sowing Opportunities  
 . Paolo, City Life / Vida Urbana  
