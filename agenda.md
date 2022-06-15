@@ -21,6 +21,7 @@ We recognize the pandemic is not over, and as such, encourage everyone to wear m
 . Isadel Eddy and Erga Pierrette, MaldenCORE  
 . Bybiose Larochelle, Diversity Equity and Inclusion officer in the office of Mayor Christenson  
 . Fern Remedi-Brown, Sowing Opportunities  
+. City Life / Vida Urbana  
 . Emily Taylor, Malden Community Member  
 . Emmalyn Woods, Malden High PRIDE Club  
 3PM: Dog show  
