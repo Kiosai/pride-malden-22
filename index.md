@@ -5,7 +5,7 @@
 Malden Pride is a volunteer-run event that celebrates queerness, grounds itself in the historical meaning of pride, and brings the Malden community closer together.
 This year is all about **CELEBRATION**. It's been a while since we've been together in person - let's make the most of it!
 
-JOIN OUR STREAM: [https://youtu.be/dbnq1zBYofM](https://youtu.be/dbnq1zBYofM)
+JOIN OUR STREAM: [https://youtu.be/5ho04spj8pM](https://youtu.be/5ho04spj8pM)
 
 ### Date, Time, Location
 
