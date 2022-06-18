@@ -30,7 +30,7 @@ We recognize the pandemic is not over, and as such, encourage everyone to wear m
 
 ## Other Things To Do At Pride
 Kids crafts will be open from 11AM-1PM.  
-Popcorn and cotton candy will be availalbe from 12-2.  
+Catering and popcorn will be availalbe from 12-2.  
 A Storywalk will be set up along the accessible winding path that enters the park on Clifton St from 11-2.  
 Local organizations will be tabling from 11-5.  
 If you'd like to volunteer, you can stop by the volunteer tent during Malden Pride to get set up with a task.  
