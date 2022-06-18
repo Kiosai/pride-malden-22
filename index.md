@@ -5,6 +5,8 @@
 Malden Pride is a volunteer-run event that celebrates queerness, grounds itself in the historical meaning of pride, and brings the Malden community closer together.
 This year is all about **CELEBRATION**. It's been a while since we've been together in person - let's make the most of it!
 
+JOIN OUR STREAM: [https://youtu.be/dbnq1zBYofM](https://youtu.be/dbnq1zBYofM)
+
 ### Date, Time, Location
 
 Saturday June 18th 2022, 11AM to 5PM, Coytemore Lea Park in Malden, RAIN OR SHINE.
