@@ -5,7 +5,7 @@
 Malden Pride is a volunteer-run event that celebrates queerness, grounds itself in the historical meaning of pride, and brings the Malden community closer together.
 This year is all about **CELEBRATION**. It's been a while since we've been together in person - let's make the most of it!
 
-JOIN OUR STREAM: [https://youtu.be/5ho04spj8pM](https://youtu.be/5ho04spj8pM)
+Join us next year! Email [pridemalden@gmail.com](mailto:pridemalden@gmail.com) to share your feedback from Malden Pride 2022 and to volunteer for Malden Pride 2023.
 
 ### Date, Time, Location
 
