@@ -3,6 +3,7 @@
 Come visit the following local orgs:
 * [AIDS Walk Boston](https://walk.aac.org/)
 * [Bike to the Sea](https://biketothesea.org/)
+* [Chinese Culture Connection](https://www.chinesecultureconnection.org/)
 * [CLVU (City Life/Vida Urbana)](https://www.clvu.org/)
 * [MaldenCORE (Malden Community Organizing for Racial Equity)](https://www.facebook.com/MaldenCORE/)
 * [Malden Neighbors Helping Neighbors](https://maldenneighbors.org/)
