@@ -3,6 +3,7 @@
 Come visit the following local orgs:
 * [AIDS Walk Boston](https://walk.aac.org/)
 * [Bike to the Sea](https://biketothesea.org/)
+* [Boston Taiwanese for Equality](https://www.facebook.com/btequality)
 * [Chinese Culture Connection](https://www.chinesecultureconnection.org/)
 * [CLVU (City Life/Vida Urbana)](https://www.clvu.org/)
 * [MaldenCORE (Malden Community Organizing for Racial Equity)](https://www.facebook.com/MaldenCORE/)
